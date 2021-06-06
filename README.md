@@ -6,3 +6,5 @@
 
 
 ![微信捐赠](https://images.gitee.com/uploads/images/2021/0516/222426_64c4feb8_5306289.png "3333.png")
+
+![捐赠](https://images.gitee.com/uploads/images/2021/0606/211106_51a24260_5306289.jpeg "photo_2021-06-06_21-09-38.jpg")
